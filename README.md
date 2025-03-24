@@ -28,3 +28,8 @@ Vuforia plugins (Archive)
 12. ##### 10.28     [Download Click](https://caiyun.139.com/m/i?2m90c5RP2N85v)  提取码:yutw
 
 13. ##### 11.0.14   [Download Click](https://caiyun.139.com/m/i?2m90bZRmrwp6f)  提取码:26er
+
+
+### WEBService 
+
+##### WEBService    [Download Click](https://caiyun.139.com/m/i?2m90cbSfyqJr8)  提取码:0zkb
