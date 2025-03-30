@@ -31,6 +31,8 @@ Vuforia plugins (Archive)
 
 13. ##### 11.0.14   [Download Click](https://caiyun.139.com/m/i?2m90bZRmrwp6f)   Extraction code:26er
 
+14. ##### 11.1      [Download Click](https://caiyun.139.com/m/i?2mknYsCKNq8m1)   Extraction code:f7lp
+
 
 ### WEBService 
 
